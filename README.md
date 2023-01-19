@@ -1,1 +1,1 @@
-Hello Guys Ridha was here. Iqbal was here too
+Hello Guys Ridha was here
